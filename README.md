@@ -3,6 +3,8 @@
 - # GOSTO DE FUTEBOL E DE VOLEI
 - GOSTO DE JOGAR JOGOS DE VIDEOGAME,CELULAR E DE COMPUTADOR
 -![](https://s2.glbimg.com/sdK_mSKmfLoa4SgYYvKJ6kKtJxg=/0x0:620x413/984x0/smart/filters:strip_icc()/i.s3.glbimg.com/v1/AUTH_cf9d035bf26b4646b105bd958f32089d/internal_photos/bs/2020/7/L/Z2fd1KSsGtUMq4I7YAaw/2019-03-07-koenigsegg-jesko-2020-1600-01.jpg)
+gmail contato j.rosada@escola.pr.gov.br
+
 - 
 - 🔭 I’m currently working on
 <!--
